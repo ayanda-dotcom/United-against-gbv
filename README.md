@@ -1,2 +1,2 @@
 # United-against-gbv
-Brings people all around the world to fight gbv issues
+United Against GBV -Connect.Support.Act
